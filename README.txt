@@ -1,1 +1,2 @@
-Hi ! My name is Huzaifa Jawed and i study in NED University in the BCIT department .Have a good day :)
+The assignment deadline is 01/11/2024 
+i am submitting it on 31st October :)
